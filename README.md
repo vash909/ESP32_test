@@ -1,1 +1,1 @@
-I promise i'll write osmething useful here.
+I promise i'll write something useful here.
